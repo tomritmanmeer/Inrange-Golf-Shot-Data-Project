@@ -6,7 +6,11 @@ I hit a number of golf shots on the practice range at Tonbridge Golf Centre with
 Club details:
 
 Driver - Titleist TS3 - 10.5 degree loft
+
 3 Wood - Titleist TS3 - 16.5 degree
+
 4 Iron - Taylormade P770
+
 7 Iron - Taylormade P770
+
 SW - 56 degree Callaway MD5 wedge
